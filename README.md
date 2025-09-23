@@ -1,0 +1,2 @@
+# watashi_no_toreeningu_ruutin
+私のトレーニングルーティン
